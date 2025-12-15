@@ -80,6 +80,10 @@
     ```
 
 ---
+## 📬 Contact
+
+**Fedya** *Aspiring Data Scientist*
+Telegram: [@Fedia_47](https://t.me/Fedia_47)
 
 ## 📬 Контакты
 
